@@ -8,7 +8,3 @@
 
 
 ![image](https://user-images.githubusercontent.com/59859965/175228808-301c9b41-17bd-4ebf-ab3b-470ea7796057.png)
-
-
-![image](https://user-images.githubusercontent.com/59859965/175231394-ed19226f-ecf5-4df9-ae2b-97938339694b.png)
-
